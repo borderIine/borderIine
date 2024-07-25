@@ -2,7 +2,7 @@
 <div align="center">
 <br> ㅤ  <br> ㅤ  <br>    <br> ㅤ  <br> ㅤ  <br> 
 <div align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=⠀⠀⠀⚔⠀⠀⠀&color=5ea1ca&style=square" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=⠀⠀⠀⚔⠀⠀⠀&color=fc007c&style=square" />
   </div>
 <br>
    </div>
@@ -12,4 +12,11 @@
 
  <sup>[rentry](https://rentry.co/petshp) ---- [strawpage](https://siteurl.straw.page/) 
  </div>
+ 
+***
+<div align="center">
+  <sup>⠀ 
+    
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31opzedtb54ul6rr3s64jgns3omi&cover_image=true&theme=default&show_offline=false&background_color=010010&interchange=false&bar_color=fc007c)](https://github.com/kittinan/spotify-github-profile)
 <br> ㅤ  <br> ㅤ  <br> ㅤ  <br>     <br> ㅤ  <br> ㅤ  <br> 
+
