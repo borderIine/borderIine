@@ -10,7 +10,7 @@
 <div align="center">
 <p align="center"> <sup>she/her <br> whisper 2 interact 
 
- <sup>[rentry](https://rentry.co/petshp) -- [strawpage](https://siteurl.straw.page/) -- [roblox (follow mee) ](https://www.roblox.com/users/5750184327/profile)
+ <sup>[rentry](https://rentry.co/petshp) -- [strawpage](https://siteurl.straw.page/) -- [roblox](https://www.roblox.com/users/5750184327/profile)
  </div>
  
 ***
