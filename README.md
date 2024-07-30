@@ -2,7 +2,7 @@
 <div align="center">
 <br> ㅤ  <br> ㅤ  <br>    <br> ㅤ  <br> ㅤ  <br> 
 <div align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=beautiful⠀callers!&color=000000&style=for-the-badge&base=20000" />
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=beautiful⠀audience!&color=000000&style=for-the-badge&base=20000" />
   </div>
 <br>
    </div>
