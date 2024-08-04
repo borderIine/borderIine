@@ -1,14 +1,16 @@
 
 <div align="center">
-<br> ㅤ  <br> ㅤ  <br>    <br> ㅤ  <br> ㅤ  <br> 
-<div align="center">
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=beautiful⠀audience!&color=000000&style=for-the-badge&base=20000" />
-  </div>
-<br>
-   </div>
-<p align="center"> <img src=https://cdn.discordapp.com/attachments/1253551506175692802/1267506211105013790/625b4acf9c576cbf914e0669edc98f47_2.jpg?ex=66aef765&is=66ada5e5&hm=ea206e560c35e6945503e1b14bd9695ef6d59e6b7ccb47343dd32a7b4a382201&" > </p> 
-<div align="center"> 
 
- <sup>[RENTRY](https://rentry.co/petshp) -- [STRAWPAGE](https://siteurl.straw.page/) -- [ROBLOX](https://www.roblox.com/users/5750184327/profile)
-<br> ㅤ  <br> ㅤ  <br> ㅤ  <br>     <br> ㅤ  <br> ㅤ  <br> 
+<div align="center">
+  <div align="center"> 
+
+ <sup>[rentry](https://rentry.co/petshp) - [strawpage](https://siteurl.straw.page/) - [rblx](https://www.roblox.com/users/5750184327/profile)
+
+<p align="center"> <img src="https://64.media.tumblr.com/7731d2c665a7b2fdcba7c2446569a149/8e768faae6e164f8-8d/s100x200/39b49e90ddd2739345b6d46e764e57f9046899c4.gifv" > </p> 
+<div align="center"> 
+  
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=clicks&color=c5a74b&style=for-the-badge&base=20000" />
+  </div>
+
+<div align="center"> 
 
