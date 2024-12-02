@@ -4,7 +4,7 @@
   </div>
 
 <div align="center"> 
-<p align="center"> <img src="https://cdn.discordapp.com/attachments/1297283509102182453/1309742371440820245/ken-carson-destroy-lonely.gif?ex=674c9363&is=674b41e3&hm=4a1d79a93e522e134c3d8ed9e9fb94081ab48d34fadc350fbed442e7aa5578de&&" > </p> 
+<p align="center"> <img src="https://cdn.discordapp.com/attachments/1297283509102182453/1309742371440820245/ken-carson-destroy-lonely.gif?ex=674de4e3&is=674c9363&hm=1130718d6ea2814e845fcf1b0d273212747aef30c4db6a628d7fadb76bc66269&&" > </p> 
 <div align="center"> 
 
  <p align="center"> 
