@@ -9,10 +9,15 @@
 
  <p align="center"> 
 
-##### [rentry](https://rentry.co/alIofme) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://siteurl.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [atabook](https://petshp.atabook.org/) ‎ ‎‎  ‎‎ ‎‎  
+##### [rentry](https://rentry.co/alIofme) ‎ ‎‎  ‎‎ ‎‎ [strawpage](https://siteurl.straw.page/) ‎ ‎‎  ‎‎ ‎‎ [listen](https://open.spotify.com/track/1aOyM41ZZTnCr9TvEc8GHj) ‎ ‎‎  ‎‎ ‎‎  
  <p align="center">
-<sup></sup>ion even need a reason, loyalty over treason
+caught a knife inside the bladder
+<p align="center">
+left her dead, raped in the street
+<p align="center">
+keisha's song.
 
+ 
 ***
 <div align="center"> 
 
