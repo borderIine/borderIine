@@ -4,7 +4,7 @@
   </div>
 
 <div align="center"> 
-<p align="center"> <img src="https://media1.tenor.com/m/cQB5hLUVIEYAAAAd/timeless-timeless-the-weeknd.gif" > </p> 
+<p align="center"> <img src="https://media1.tenor.com/m/tWVc0CcwEE0AAAAd/mira-kano-mira-kano-tea-pour.gif" > </p> 
 <div align="center"> 
 
  <p align="center"> 
