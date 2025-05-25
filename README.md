@@ -9,5 +9,5 @@ helloooo my names suav ( ᵔ ⩊ ᵔ ) she/her prns c+h very welcomed
 <div align="center">
  ask for socials, strwpage & rentry being reworked its gonna take weeks to finish soz SIGN ATABOOK THO
    ⠀⠀<p align="center">
-dni dr fandom 
+dni weird dr fans 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=borderIine&label=views&color=000000&style=for-the-badge&base=20000" />
