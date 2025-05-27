@@ -1,6 +1,6 @@
  
 <div align="center"> 
-<img src="https://files.catbox.moe/0og8v2.gif" width="230" height="270">
+<img src="https://files.catbox.moe/scalzx.jpg"
  <p align="center"> 
 <div align="center">
   ⠀⠀<p align="center">
