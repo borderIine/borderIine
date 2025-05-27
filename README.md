@@ -1,10 +1,10 @@
  
 <div align="center"> 
-<img src="https://files.catbox.moe/scalzx.jpg"
+<img src="https://files.catbox.moe/bveztz.jpg"
  <p align="center"> 
 <div align="center">
   ⠀⠀<p align="center">
-nagito enthusiast kyaa..! sign ata/straw
+nagito enthusiast kyaa...! sign ata/straw
 <p align="center"> w2i im offtab all the time and wont see ur texts in public chat :(
    ⠀⠀<p align="center">
 dni corny dr fans
