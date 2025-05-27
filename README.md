@@ -4,7 +4,7 @@
  <p align="center"> 
 <div align="center">
   ⠀⠀<p align="center">
-nagito enthusiast kyaa...! sign ata/straw
+nagito enthusiast kyaa...! sign atabook
 <p align="center"> w2i im offtab all the time and wont see ur texts in public chat :(
    ⠀⠀<p align="center">
 dni corny dr fans
