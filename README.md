@@ -8,7 +8,7 @@
   <img src="https://files.catbox.moe/ztavpe.png" width="350" height="600">
 </p>
 <p align="center">
-  w2i always 
+  w2i 
   ask for socials
   <p align="center">
     sign ata okay?
