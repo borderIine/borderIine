@@ -9,6 +9,8 @@
 </p>
 <p align="center">
   w2i always 
-  sign ata
+  ask for socials
+  <p align="center">
+    sign ata okay?
 </p>
 <p align="center">
