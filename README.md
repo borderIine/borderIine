@@ -10,8 +10,7 @@
 <p align="center">
   w2i 
   ask for socials
-<p align="center">
-c+h warrior
+
 <div align="center">
  
 [atabook](https://luckystudent.atabook.org/)
