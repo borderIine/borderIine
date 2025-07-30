@@ -13,6 +13,6 @@ ask for socials
 
 <div align="center">
  
-⠀⠀⠀⠀⠀[atabook](https://luckystudent.atabook.org/)⠀⠀⠀⠀[rentry](https://rentry.co/hopefl)
+⠀⠀⠀⠀⠀[atabook](https://luckystudent.atabook.org/)
 </div>
 ‎ 
