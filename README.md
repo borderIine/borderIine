@@ -9,10 +9,10 @@
 </p>
 <p align="center">
 ⠀⠀⠀⠀⠀w2i 
-ask for socials
+always
 
 <div align="center">
  
-⠀⠀⠀⠀⠀[atabook](https://luckystudent.atabook.org/)
+⠀⠀⠀⠀⠀[atabook](https://luckystudent.atabook.org/)⠀⠀⠀⠀⠀ [socials](https://guns.lol/enmity.)
 </div>
 ‎ 
