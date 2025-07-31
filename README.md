@@ -13,6 +13,6 @@ always
 
 <div align="center">
  
-⠀⠀⠀⠀⠀[atabook](https://luckystudent.atabook.org/)⠀⠀⠀⠀⠀ [socials](https://guns.lol/enmity.)
+⠀⠀⠀⠀⠀[atabook](https://komaeda.atabook.org/)⠀⠀⠀⠀⠀ [socials](https://guns.lol/enmity.)
 </div>
 ‎ 
