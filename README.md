@@ -1,5 +1,5 @@
 <p align="center">
-⠀⠀⠀⠀⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=views&color=000000&flat&base=20000" />
+⠀⠀⠀⠀⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=views&color=000000&flat" />
 
 <p align="center">
 ‎ ‎   </p>
