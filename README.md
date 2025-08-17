@@ -13,6 +13,6 @@ always
 
 <div align="center">
  
-⠀⠀⠀⠀⠀[atabook](https://komaeda.atabook.org/)⠀
+⠀⠀⠀⠀[atabook](https://komaeda.atabook.org/)⠀⠀⠀⠀⠀⠀[rentry](https://rentry.co/komaedaaaa)
 </div>
 ‎ 
