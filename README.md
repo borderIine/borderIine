@@ -5,7 +5,7 @@
 ‎ ‎   </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/4vw89q.webp" width="500" height="600">
+  <img src="https://files.catbox.moe/4vw89q.webp" width="430" height="600">
 </p>
 <p align="center">
 ⠀⠀⠀⠀⠀w2i 
