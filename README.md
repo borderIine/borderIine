@@ -1,7 +1,7 @@
 
 <h4 align="center">
   
-⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=kiss&color=febbba&flat" />
+⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=kyute&color=febbba&flat" />
 
 
 <h4 align="center">
