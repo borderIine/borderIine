@@ -1,12 +1,12 @@
 
 <h4 align="center">
   
-⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=kyute&color=febbba&flat" />
+⠀<img src="https://komarev.com/ghpvc/?username=borderIine&label=pure&color=000000&flat" />
 
 
 <h4 align="center">
   
-  <img src="https://files.catbox.moe/jaailx.webp" width="400" height="600" >
+  <img src="https://media1.tenor.com/m/FoJb0zxfM0wAAAAd/markiplier-off.gif" width="400" height="600" >
   
 
 <h4 align="center">
