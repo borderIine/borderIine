@@ -6,7 +6,7 @@
 
 <h4 align="center">
   
-  <img src="https://files.catbox.moe/2oos7r.png" width="300" height="500" >
+  <img src="https://files.catbox.moe/wsqkp5.jpg" width="300" height="500" >
   
 
 <h4 align="center">
